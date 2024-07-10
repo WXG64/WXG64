@@ -1,4 +1,5 @@
 qq
+
 -not answering = probably puking on the floor (w2i, c+h, kys)
 -you're valid
 -not a native english speaker (russian) so sorry if being slow
