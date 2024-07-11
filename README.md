@@ -1,5 +1,8 @@
 qq
 
+for pt users:
+
+
 -not answering = probably puking on the floor (w2i, c+h, kys)
 
 -you're valid
