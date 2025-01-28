@@ -8,6 +8,7 @@ for pt users:
 -not a native english speaker (russian) so sorry if being slow
 
 https://github.com/WXG64/WXG64/assets/159955817/34c0026c-8695-44e2-a2fe-5a924f65b9a5
+
 !RANDOM SHIT, GO!
 ![tumblr_7288c929848491a37af56f346c854981_bfd2ec6f_250](https://github.com/user-attachments/assets/8184f643-2b2b-4970-8238-d81a5e2947e6)
 
